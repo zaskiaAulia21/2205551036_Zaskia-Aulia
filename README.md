@@ -1,0 +1,2 @@
+# 2205551036_Zaskia-Aulia
+MEMBUAT FUNGSI
